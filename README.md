@@ -1,0 +1,1 @@
+# kadir_kerem_ketenci_YODA_OTONOM_YAZILIM
